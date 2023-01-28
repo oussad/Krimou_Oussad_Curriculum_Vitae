@@ -1,6 +1,1 @@
-#                                                                     cvkrimou
-
-
-
-lkfbldbf;gnk;l
-lsdhdlfkjbhjf
+                                                            Currculium votae KRIMOU OUSSAD
